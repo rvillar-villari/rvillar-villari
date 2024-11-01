@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Rita (@rvillar-villari)
+- 👩🏻‍💻 I am a data analyst at Villari
 - 😄 Pronouns: she/her but you can be creative with them too
 - 👀 I’m interested in movies, cooking, biking and live music
 - 🌱 I’m currently learning Dutch 
